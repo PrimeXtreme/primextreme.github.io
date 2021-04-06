@@ -1,0 +1,1 @@
+I am creating a new Game Website, a little similar to to that of (Pokemon). Don't play the game now. Its currently under development. If you're interested or have an idea for the game, personal message me(you can do so in reddit as well, i have an account with the same name).
